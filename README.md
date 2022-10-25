@@ -4,4 +4,3 @@ DM me through Discord, Skiddy#6625.
 DNI racists, homophobes, transphobes, etc. just don't be a dick. :l 
 
 My Youtube: Skiddy
-My Twitter: @whitkidskid
